@@ -1,0 +1,2 @@
+haaaaai
+aku adam
